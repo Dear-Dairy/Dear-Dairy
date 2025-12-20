@@ -4,4 +4,4 @@
 <h5 align="center"><img width="600" height="240" alt="image" src="https://github.com/user-attachments/assets/98816237-2e7c-4197-9f19-c039975513ed" />
 
   <h6 align="center"> ac . cognitivelys
-jyeah js call me pink or dairy or nythign idrc uhhh any prns idrc abt that either
+jyeah js call me Dani(ilove this name pless!!9 or pink or dairy or nythign idrc uhhh any prns idrc abt that either
